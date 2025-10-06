@@ -1,1 +1,1 @@
-all url arre from https://adblock.turtlecute.org/
+all of urls are from https://adblock.turtlecute.org/
